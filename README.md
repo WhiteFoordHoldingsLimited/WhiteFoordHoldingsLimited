@@ -1,4 +1,4 @@
-# White Foord Holdings Limited отзывы: надежный брокер или развод?
+# Whitefoord Holdings Limited отзывы: надежный брокер или развод?
 
 ![White Foord Holdings Limited otzyvy](https://github.com/user-attachments/assets/aae8169b-c9ce-4052-8cfb-1d12c11dee76)
 
